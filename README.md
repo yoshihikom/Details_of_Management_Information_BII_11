@@ -1,1 +1,1 @@
-# Details_of_Management_Information_BII_11
+# 経営情報各論BⅡ　第１１回講義資料
